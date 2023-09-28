@@ -1,4 +1,4 @@
-![Funny GIF](https://media.giphy.com/media/slnb0AtjXMVhf3u7NT/giphy.gif)
+![Funny GIF](giphy.webp)
 
 # Cai Castaneda
 
