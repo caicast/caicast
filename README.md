@@ -10,9 +10,9 @@
 - _Studio Art Minor_
 
 ## Skills
-- Photography
+- Photography Cert.
 - Adobe Suite Skills
-- UX & Web Design
+- UX & Web Design Cert.
 
 
 ## My Links
