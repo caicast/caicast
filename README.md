@@ -16,7 +16,7 @@
 
 
 ## My Links
-* [Instagram](https://www.instagram.com/cai.cast/)
+* [Instagram](https://www.instagram.com/creatingwithcai/)
 
 ## Dept of Design
 [EWU Design](https://www.ewu.edu/cstem/design/)
